@@ -11,7 +11,8 @@ afin que vous puissiez vous représenter la situation :
 - une meilleure constitution physique
 - une plus grande expérience, notamment par un âge plus avancé
 - une influence déjà en place auprès d'autres personnes, ou transmise, par exemple par héritage$
-- une meilleure capacité de réflexion, une meilleure mémoire
+- une capacité singulière à comprendre les autres, à communique
+- une meilleure mémoire
 - ...
 
 Cette influence d'une, ou d'un petit nombre de personnes sur le reste du groupe
